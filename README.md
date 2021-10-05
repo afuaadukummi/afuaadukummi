@@ -1,0 +1,2 @@
+- 👋 Hi, I’m  Afua
+- A newbie software engineer looking for learning opportunities
